@@ -1,0 +1,1 @@
+# vnitrni-omitky-cz
